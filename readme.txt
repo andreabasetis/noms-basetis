@@ -1,1 +1,2 @@
 Andrea Galicia
+Lorena Borrull
